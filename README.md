@@ -1,4 +1,4 @@
-## Hi there ! This is Richa 👋
+## Hi there! This is Richa 👋
 
 
 ## 🌐 Socials:
